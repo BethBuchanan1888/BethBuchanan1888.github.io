@@ -7,5 +7,6 @@ Dedicated federal employee, with work history with DOI and mostly USFS.
 
 Contact me:
 *suzanne.buchanan@usda.gov
+unless I get RIF'd
 
 
